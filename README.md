@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **tauseef150198@gmail.com**
 
-- 📄 Know about my experiences [Click here](https://drive.google.com/file/d/1VDRcSLICQVe4U_yugYz7-MIs8_DzaHG5/view?usp=drive_link)
+- 📄 Know about my experiences [Click here](https://drive.google.com/file/d/1LRqlexVPzK5ziWiANYxeVNZW8ulrGBMf/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
